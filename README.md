@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/bandhan_564" target="blank"><img src="https://img.shields.io/twitter/follow/bandhan_564?logo=twitter&style=for-the-badge" alt="bandhan_564" /></a> </p>
  
- Curently I am learning Data structure and Algorithim
+- Curently I am learning Data structure and Algorithim
 - 💬 Ask me about **Html,CSS,Javascript**
 
 - 📫 How to reach me **jayasinghbandhan@gmail.com**
