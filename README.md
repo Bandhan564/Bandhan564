@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **jayasinghbandhan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pYFMsW6AbnXk7pTIGe3ekLTzbnQ3E7Uf/view?usp=sharing](https://drive.google.com/file/d/1pYFMsW6AbnXk7pTIGe3ekLTzbnQ3E7Uf/view?usp=sharing)
+- 📄 Know about my experiences [ https://drive.google.com/drive/folders/1d_h-Ahja6GnEu2qLfYpRyXabbLfNyuu2?usp=sharing]( https://drive.google.com/drive/folders/1d_h-Ahja6GnEu2qLfYpRyXabbLfNyuu2?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
